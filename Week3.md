@@ -13,4 +13,17 @@ Anyways, I think that's all I have to say for this week.
 
 Byeee!
 
+
+
+
+
+https://github.com/user-attachments/assets/e46de72e-fe16-4fe5-afd4-f674c4d49044
+
+
+
+
+
+
+
+
 ###
