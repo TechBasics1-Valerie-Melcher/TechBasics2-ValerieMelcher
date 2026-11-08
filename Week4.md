@@ -11,5 +11,9 @@ There's honestly not that much to say this week, I had lots of fun with the proj
 
 Until next week!
 
-https://github.com/user-attachments/assets/a66a6ecf-bcd4-47eb-8792-443536124540
+
+
+https://github.com/user-attachments/assets/e477832a-c301-4bec-bbf0-64f7080270df
+
+
 
